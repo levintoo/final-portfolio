@@ -1,2 +1,2 @@
 # final-portfolio
-which didnt becme final
+which didnt become final
